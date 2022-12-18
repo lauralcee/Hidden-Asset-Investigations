@@ -1,1 +1,2 @@
-# Hidden-Asset-Investigations
+# Hidden Asset Investigations
+[Hidden Asset Investigations](https://skiptracers.net/) is a process of locating, identifying and recovering assets, holdings, and properties that have intentionally been concealed.A hidden assets investigation can really assist in both sides of a child support dispute or spousal maintenance. Often, someone who is ordered by the court to provide financial resources may try to claim fewer assets in order to lower the payments.
